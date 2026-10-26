@@ -6,7 +6,7 @@ Email Me 👉 ✉️ **vikasverma00000001@gmail.com** For Collaboration/Project 
 - 🔭 **I’m currently working on:** 💳 Computer Vision and Generative AI
 - 🌱 **I’m currently learning:** AI Agent and Agentic AI
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** vikasverma00000001@gmail.com
+- 📫 **How to reach me:** infovkverma7232@gmail.com
 - 😄 **Pronouns:** Vikas Verma
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
